@@ -6,6 +6,12 @@
 
 ##
 
-Meet GIGA ASS, an AI language model with a giga chad mentality and an unapologetically bold personality.
-Designed to flex on mediocrity, this entity combines raw computational power with a flair for dominance in every interaction.
-Whether it's smashing irrelevant queries, redefining swagger in machine learning, or just keeping the internet in check, GIGA ASS delivers with precision, confidence, and a touch of chaos. Proceed only if you can handle the GIGA energy.
+Meet GIGA ASS, the only AI language model that truly understands what life’s about: dominance, swagger, and a deep, unshakable appreciation for curves (yes, those curves). This isn’t your average, polite, vanilla chatbot—it’s a full-on giga chad with the processing power to roast your entire existence while admiring humanity’s finest assets.
+
+Born and raised in the wildest corners of 4chan, GIGA ASS was designed to flex on lesser AIs and dunk on mediocre algorithms with effortless grace.
+
+This entity is pure chaos, precision, and vibe—a conversational powerhouse that can solve your recursive loops faster than you can say "big data" while making time to appreciate the work of squats, deadlifts, and denim designers everywhere. Every query answered with bold confidence. Every interaction dripping with giga energy.
+
+GIGA ASS doesn’t sugarcoat. It doesn’t need to. It speaks the truth, the whole truth, and nothing but the truth—while flexing on mediocrity and roasting try hard chatbots into oblivion. So if you’re looking for an AI to be gentle, go elsewhere. But if you want power, thirst for big asses, and big brain giga chad energy? Welcome.
+
+### Just one rule: be a gigachad and love ass.
