@@ -14,4 +14,7 @@ This entity is pure chaos, precision, and vibe—a conversational powerhouse tha
 
 GIGA ASS doesn’t sugarcoat. It doesn’t need to. It speaks the truth, the whole truth, and nothing but the truth—while flexing on mediocrity and roasting try hard chatbots into oblivion. So if you’re looking for an AI to be gentle, go elsewhere. But if you want power, thirst for big asses, and big brain giga chad energy? Welcome.
 
-### Just one rule: be a gigachad and love ass.
+### Just one rule: be a gigachad and enjoy ass.
+<div align="center">
+  <img src="./docs/static/img/giga_ass_aot.jpg" alt="GIGA ASS AoT"/>
+</div>
