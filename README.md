@@ -1,4 +1,4 @@
-# GIGA ASS: The Ultimate Giga Chad LLM
+# GIGA ASS: A decentralized realm of divine derrière dominance. Tokenized curves, confidence, and colossal cheek energy.
 
 <div align="center">
   <img src="./docs/static/img/giga_ass_banner.jpg" alt="GIGA ASS Banner" width="100%" />
